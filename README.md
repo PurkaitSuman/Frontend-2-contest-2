@@ -1,1 +1,0 @@
-# Frontend-2-contest-2
